@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE GLVTTONS FEAVER.VVritten by Thomas Bancroft.LONDON, Printed by Iohn Norton, for William Cooke, a
+
 1. To the nobly accomplisht Gentleman, Wolstan Dixie, Esquire.
 
 1. To his friend Mr. Bancroft, on his Poeme stil'd, The Gluttons Feauer.
